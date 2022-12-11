@@ -1,3 +1,5 @@
 # Vladislav Kaplenko
 
-## contacts
+## Contacts
+
+* Location: Novosibirsk, Russia
