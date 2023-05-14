@@ -1,5 +1,5 @@
 # Vladislav Kaplenko
 
-## Contacts
+### Contact Information:
 
-* Location: Novosibirsk, Russia
+**E-mail:** vladkaplenko27@gmail.com
